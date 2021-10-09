@@ -29,4 +29,3 @@
 
 ## Follow me on Linkedin
 
-[Buy me a Coffee](https://www.buymeacoffee.com/tomn)
